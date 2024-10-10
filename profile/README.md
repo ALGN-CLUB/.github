@@ -1,6 +1,3 @@
-# DoDisturb
+# Hey Bud, welocome to DoDisturb
 
-## Relentless Notifications for your Uni Calendar
-
-
-[DoDisturb](https://hi.dodisturb.app)
+# [Sign Up!](https://hi.dodisturb.app)
