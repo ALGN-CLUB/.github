@@ -1,3 +1,4 @@
-# Hey Bud, welocome to DoDisturb
+# Hey bud, welcome to [DoDisturb](https://hi.dodisturb.app) 👋
 
-# [Sign Up!](https://hi.dodisturb.app)
+
+https://dodisturb.app/
