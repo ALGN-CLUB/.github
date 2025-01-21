@@ -1,4 +1,1 @@
-# Hey bud, welcome to [DoDisturb](https://hi.dodisturb.app) 👋
-
-
-https://dodisturb.app/
+# [ALGN.CLUB](https://algn.club/)
